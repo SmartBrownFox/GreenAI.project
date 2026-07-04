@@ -1,0 +1,1 @@
+These documents are the property of their respective copyright holders. They are included here for research and educational purposes only under Fair Use doctrines.  They are NOT covered by the repository's main CC license.
